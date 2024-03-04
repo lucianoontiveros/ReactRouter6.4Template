@@ -59,3 +59,5 @@ Te agradezco que te tomarás el tiempo de leer. Te dejo mis redes, ya que por la
 - [Twitch ](https://twitch.tv/cuartodechenz "Twitch ")
 - [Threads](https://www.threads.net/@luciano.a.ontiveros?hl=es-la "Threads")
 - [Discord](https://discord.gg/UdU3wvpWu7 "Discord")
+
+Espero verte pronto.
